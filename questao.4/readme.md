@@ -1,0 +1,1 @@
+chego na conclusão que ambos estao a mesma distancia de ribeirao preto, pois ambos se cruzao anulando a ideia de referencial para aplicar comparação.
